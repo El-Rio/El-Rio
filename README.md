@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Science
 - 🌱 I’m currently learning Data Science
 - 💞️ I’m looking to collaborate on Projects
-- 📫 How to reach me @EI-Rio
+- 📫 How to reach me @Rishav Patel
 - 😄 Pronouns: His/Him
 - ⚡ Fun fact: 
 
